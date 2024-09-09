@@ -1,2 +1,2 @@
 # main page
-washajbsñkjfb<ñjbdf<>>
+el gobierno cog* mal
